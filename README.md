@@ -4,9 +4,11 @@ Are you ready for an adrenaline-pumping adventure that tests your reflexes and r
 
 **What is Curve Rush and Why Should You Play?**
 
-[**Curve Rush**](https://curverush.org/) is more than just a game; it's an exercise in skill, timing, and pure arcade fun. Imagine rolling across an endless expanse of sand dunes, building speed on the slopes, and launching yourself into the air with perfect timing. That’s the heart of the game. Your goal is simple: maintain your momentum, land smoothly, and rack up as many points as possible. But beware, one misstep can shatter your ball and bring your journey to an abrupt end.
+Curve Rush is more than just a game; it's an exercise in skill, timing, and pure arcade fun. Imagine rolling across an endless expanse of sand dunes, building speed on the slopes, and launching yourself into the air with perfect timing. That’s the heart of the game. Your goal is simple: maintain your momentum, land smoothly, and rack up as many points as possible. But beware, one misstep can shatter your ball and bring your journey to an abrupt end.
 
 This isn’t just about speed, it's about strategy. Do you aim for the highest jumps, risking a hard landing for a massive score? Or do you play it safe, focusing on consistency and control? The choice is yours!
+
+👉 [Play Game Now](https://curverush.org) 🕹
 
 **Simple Controls, Deep Gameplay**
 
