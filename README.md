@@ -1,6 +1,6 @@
 ## Conquer the Dunes: Experience the Thrill of Curve Rush!
 
-Are you ready for an adrenaline-pumping adventure that tests your reflexes and rewards precision? Then dive into the captivating world of [**Curve Rush**](https://curverush.org/), a deceptively simple yet endlessly engaging arcade game that will have you hooked from the very first bounce! Guide your ball across a minimalist desert landscape, mastering the art of momentum and soaring to new heights.
+Are you ready for an adrenaline-pumping adventure that tests your reflexes and rewards precision? Then dive into the captivating world of [**Curve Rush**](https://curverush.co/), a deceptively simple yet endlessly engaging arcade game that will have you hooked from the very first bounce! Guide your ball across a minimalist desert landscape, mastering the art of momentum and soaring to new heights.
 
 **What is Curve Rush and Why Should You Play?**
 
@@ -8,11 +8,11 @@ Curve Rush is more than just a game; it's an exercise in skill, timing, and pure
 
 This isn’t just about speed, it's about strategy. Do you aim for the highest jumps, risking a hard landing for a massive score? Or do you play it safe, focusing on consistency and control? The choice is yours!
 
-👉 [Play Game Now](https://curverush.org) 🕹
+👉 [Play Game Now](https://curverush.co) 🕹
 
 **Simple Controls, Deep Gameplay**
 
-The beauty of [**Curve Rush**](https://curverush.org/) lies in its accessibility. The controls are incredibly intuitive:
+The beauty of [**Curve Rush**](https://curverush.co/) lies in its accessibility. The controls are incredibly intuitive:
 
 *   **Click/Tap/Space/Up Arrow:** That's it! Use these to control your ball and time your jumps.
 
@@ -36,4 +36,4 @@ Mastering these simple inputs, however, takes practice. You'll quickly learn the
 
 Curve Rush offers an addictive and engaging experience that will keep you coming back for more. Whether you're a seasoned gamer or a casual player looking for a quick and fun distraction, this game has something to offer. So, what are you waiting for?
 
-**Ready to conquer the dunes? Head over to [play the game](https://curverush.org/) and start your adventure today!**
+**Ready to conquer the dunes? Head over to [play the game](https://curverush.co/) and start your adventure today!**
