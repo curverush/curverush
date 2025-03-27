@@ -1,6 +1,6 @@
 ## Conquer the Dunes: Experience the Thrill of Curve Rush!
 
-Are you ready for an adrenaline-pumping adventure that tests your reflexes and rewards precision? Then dive into the captivating world of [**Curve Rush**](https://curverush.co/), a deceptively simple yet endlessly engaging arcade game that will have you hooked from the very first bounce! Guide your ball across a minimalist desert landscape, mastering the art of momentum and soaring to new heights.
+Are you ready for an adrenaline-pumping adventure that tests your reflexes and rewards precision? Then dive into the captivating world of [**Curve Rush**](https://curverush.org/), a deceptively simple yet endlessly engaging arcade game that will have you hooked from the very first bounce! Guide your ball across a minimalist desert landscape, mastering the art of momentum and soaring to new heights.
 
 **What is Curve Rush and Why Should You Play?**
 
